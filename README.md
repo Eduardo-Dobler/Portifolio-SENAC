@@ -10,11 +10,13 @@ Estado Civil: Solteiro/Menor
 Endereço: Rua José Casa - 115 - Galópolis – Caxias do Sul/RS – CEP 95090-180
 
 Email: dudutd2008@gmail.com
+
 Celular/Whats: 54 996837388
 
 Formação:
 
 	Senac Caxias – Cursando segundo ano do ensino médio (Técnico em Ti);
+
 	Curso de Língua Inglesa nível Intermediário (College English School) CEFR=B1+.
 
 Experiencia Profissional:
